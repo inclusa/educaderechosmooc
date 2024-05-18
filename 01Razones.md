@@ -1,7 +1,0 @@
-# Tres razones que han motivado tu inscripción en el curso
-
-1. Quiero saber más acerca de los derechos de la infancia.
-
-2. Quiero reflexionar acerca de la ciudadanía global, concepto, enfoque y participación en la sociedad.
-
-3. Entiendo que hemos de proteger la infancia de manera activa, los derechos de la infancia no es algo natural, sino un constructo del que partir para defenderlos en cualquier contexto.
